@@ -12,4 +12,10 @@
 
 -Face (nose will be added and possibly earrings for RBG's signature look)
 
+*In general, I have a lot of work to do on making the statue look more like RBG.
+
 **OVERALL,** this is meant to depict the late Justice Ruth Bader Ginsburg as the Statue of Liberty. This is a political visual argument, stating that the appointment of Amy Coney Barrett would destroy the work RBG has done for women's rights. Thus, the words "Here lies Ladies' Liberty" below the statue. I chose the words "Ladies' Liberty" to serve as a callback to Lady Liberty/ the Statue of Liberty. 
+
+Some things I'd appreciate advice on: 
+-How I can make her look more like RBG? Should I add actual text that indicates it is her?
+-Any notes if there should be a background?
