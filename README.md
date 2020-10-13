@@ -1,21 +1,5 @@
-**The main .xcf file is called visualargumentrbg.xcf !**
+**The main .xcf file is called Destroying RBG.xcf !**
 
-**Please take note that these aspects are not finished:**
+**OVERALL,** this piece is meant to depict the late Justice Ruth Bader Ginsburg as the Statue of Liberty. This is a political visual argument, stating that the appointment of Amy Coney Barrett would destroy the work RBG has done for women's rights. Thus, the words "Here Lies Ladies' Liberty" are written below the statue. I chose the words "Ladies' Liberty" to serve as a callback to Lady Liberty/ the Statue of Liberty. The book RBG holds by her side reads "My Most Fervent Wish," indicative of her final words, which were to not appoint her replacement on SCOTUS until a new president was elected. The books she holds on top of her palm are some cases in which she was influential in fighting for women's rights. The top case, Roe v. Wade, was not ruled on by RBG herself as it was before her time on SCOTUS, but it is representative of the abortion rights that RBG guarded; these rights are the most vulnerable if Barrett would be to appointed, which is why it has a place on the top of the stack.
 
--Books stacked on top of hand (will be colored in and have names of court cases on them) 
-
--Head piece (will be colored in)
-
--Hair (will be colored in and possibly add on a bun for RBG's signature look)
-
--Head and arm (will be retraced in black, currently gray)
-
--Face (nose will be added and possibly earrings for RBG's signature look)
-
-*In general, I have a lot of work to do on making the statue look more like RBG.
-
-**OVERALL,** this is meant to depict the late Justice Ruth Bader Ginsburg as the Statue of Liberty. This is a political visual argument, stating that the appointment of Amy Coney Barrett would destroy the work RBG has done for women's rights. Thus, the words "Here lies Ladies' Liberty" below the statue. I chose the words "Ladies' Liberty" to serve as a callback to Lady Liberty/ the Statue of Liberty. 
-
-Some things I'd appreciate advice on: 
--How I can make her look more like RBG? Should I add actual text that indicates it is her?
--Any notes if there should be a background?
+Most of this piece was drawn by me, and I really enjoyed adding in details to add to the symbolism and aesthetic. I hope you all enjoy it!
